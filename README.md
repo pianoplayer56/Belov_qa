@@ -1,1 +1,0 @@
-# Belov_qa
